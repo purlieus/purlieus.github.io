@@ -1,4 +1,4 @@
-##SHoP Architects | Project Director | New York, New York
+**SHoP Architects | Project Director | New York, New York**
 
 *Collins Arch* for *Cbus Property* in *Melbourne, Australia*\
 Lead design team management and coordination across international partnership for 1.75m sf mixed use
