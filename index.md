@@ -36,7 +36,7 @@
 
 ## Education +
 
-**Bachelor of Architecture** Louisiana State University, Baton Rouge, Louisiana
+**Bachelor of Architecture** Louisiana State University, Baton Rouge, Louisiana \
 **New York State Registered Architect** #032223
 
 **Proﬁcient:** Autodesk Revit, Navisworks, AutoCAD; McNeel Rhino; Bentley Microstation; Adobe Photoshop, Illustrator, Indesign; Microsoft Office | **Experienced:** Tableau; Autodesk 3DS Max, Vasari; Trimble Sketchup; dRofus
